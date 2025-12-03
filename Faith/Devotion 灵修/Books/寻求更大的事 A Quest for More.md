@@ -1,4 +1,6 @@
+Living for Something Bigger Than You
 
+本书内容结构：
 1-6 章诊断，根源不在于环境，而在自己的小王国。
 7-14 神的医治
 15-18 国度的真理在生活中应用
